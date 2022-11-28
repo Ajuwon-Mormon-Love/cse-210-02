@@ -95,6 +95,6 @@ The relationship between objects: The director has cards.
 
 ---
 
-**Norre Daroy**
+**EMMANUEL AJUWON**
 
 *femzyfemite@gmail.com*
